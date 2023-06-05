@@ -6,6 +6,6 @@ We are group of 4 members working on this project.
  Group Members:-
  
 Chhavi Midha:- chhavimidha08 , 
-Dolly chaudhary:- dollychaudhary25 , 
-Deepa Gupta :- 1Iamawinner123 , 
+Dolly chaudhary:- dollychaudhary25  , 
+Deepa Gupta :- 1Iamawinner123  , 
 Janhavi Singh:- Janhavis11 
